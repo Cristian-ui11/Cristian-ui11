@@ -1,1 +1,1 @@
-cristian lobo est. ing sistemas UNAD.
+cristian lobo, estudiante Ing sistemas UNAD.
