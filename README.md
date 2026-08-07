@@ -1,1 +1,1 @@
-Cristian Lobo, estudiante Ing sistemas UNAD.
+Cristian Lobo, estudiante Ing sistemas.
